@@ -1,1 +1,1 @@
-I work on educating enterprises to operationalize AI.
+I love educating individuals and enterprises to operationalize AI.
