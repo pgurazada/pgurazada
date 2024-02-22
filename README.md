@@ -1,1 +1,1 @@
-I love educating individuals and enterprises to operationalize AI.
+Empowering individuals and enterprises to effectively operationalize AI.
